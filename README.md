@@ -1,2 +1,2 @@
-My website. Enjoy :) 
+My website. Enjoy it :) 
 Work in progress...
